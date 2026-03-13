@@ -1,0 +1,2 @@
+# naruto
+shidori and rasingan
